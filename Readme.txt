@@ -1,1 +1,2 @@
-Welcome to Scandium 
+Welcome to Scandium
+Online digital marketing platform
